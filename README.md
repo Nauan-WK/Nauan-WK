@@ -1,4 +1,4 @@
- xX Sobre mim xX
+ xX Sobre mim Xx
 
 
 - 👋 Olá, meu nome é Nauã, sou aluno do Colégio São Mateus (CESM) na cidade de São Mateus do Sul.   
